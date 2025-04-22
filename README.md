@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kalam-12
 - 👀 I’m interested in Tech
-- 🌱 I’m currently learning BCA(CS)
+- 🌱 I’m currently Pursuing BCA(CS)
 - 💞️ I’m looking to collaborate on Myself
 - 📫 How to reach me abdulk1425@gmail.com
 - 😄 Pronouns: he/him
